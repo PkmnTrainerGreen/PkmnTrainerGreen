@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PkmnTrainerGreen
-- 👀 I’m interested in ... Hacking the Green Sprites of Madame Frog/Hatun and Ghost-MissingNo into Vanilla Red,Blue & Yellow as Well as Japanese/Engrish Green.
-- 🌱 I’m currently learning ... to Work with others to reach higher goals.
+- 👀 I’m interested in ... learning how to hack the Green Sprites of Madame Frog/Hatun and Ghost-MissingNo into Vanilla Red, Blue & Yellow as Well as Japanese/Engrish Green.
+- 🌱 I’m currently learning ... to work with others to reach higher goals.
 - 💞️ I’m looking to collaborate on ... whatever I can.
 - 📫 How to reach me ...
 - 😄 Pronouns: ... She/Her
